@@ -14,6 +14,6 @@ Brian Freeman gaslights every single time I talk to him,  which means Isabella i
 
 Both of you were a very calucting type of persons.
 
-OH SHIT
+OH SHIT >> OH SNAP
 
 ## 蒼天耍流氓
