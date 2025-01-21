@@ -17,3 +17,5 @@ Both of you were a very calucting type of persons.
 OH SHIT >> OH SNAP
 
 ## 蒼天耍流氓
+
+<https://zh.wikipedia.org/zh-hant/%E9%90%B5%E6%8B%B3%E7%84%A1%E6%95%B5%E5%AD%AB%E4%B8%AD%E5%B1%B1>
